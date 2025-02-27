@@ -1,0 +1,9 @@
+- [Valheim](https://store.steampowered.com/app/892970/Valheim/) Surival game, quasi: Minecraft nur mit Vikinger und schiffen!
+- Borderlands (alle Teile)
+- [Dead by Daylight](https://store.steampowered.com/app/381210/Dead_by_Daylight/) horror survival game, ist immer 5 gegen 1, du kannst also random in der Gruppe als "gute" spielen oder alleine als böser)
+- LoL
+- [Escape Simulator](https://store.steampowered.com/app/1435790/Escape_Simulator/) Escape room Simulator, ganz cute
+- Garrys Mod sandbox game, gibt community made spielmodi, zB TTT - Trouble in Terrorist Town, Werwolf nur als shooter Halo (<3)
+- [Payday 3](https://store.steampowered.com/app/1272080/PAYDAY_3/) du spielst Bankräuber, bissl funny, aber halt... bankraub :D
+- [Portal 2](https://store.steampowered.com/app/620/Portal_2/) rätselspiel, absolute classic, hat single player (1. teil ist single player only) und du musst zusammen so rätsel lösen mit portalen die du platzieren kannst
+- 
